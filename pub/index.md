@@ -1,1 +1,1 @@
-1. <a href="intro.htm">intro.htm: what where do</a>
+1. <a href="intro.md">intro.md: what where do</a>
