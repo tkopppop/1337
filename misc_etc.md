@@ -1,6 +1,6 @@
 
 haha hello.<br>
-It's me x90c whom an elite hacker. I born in 1985 in south korea and at the moments, I started to ready to become a computer hacker in the world.<br>
+It's me A.K.A x90c whom an elite hacker. I born in 1985 in south korea and at the moments, I started to ready to become a computer hacker in the world.<br>
 <br>
 - (now) thinking in my hacker life.<br>
 - 2016: i made linux kernel af_packet rcb and some other zeroday exploits.
