@@ -14,7 +14,7 @@ Korean version.
 hello i'm 1st generation hacker. i was working with teams as the up.<br>
 :)<br>
 he stolen my code in the credit author naming... and change using of the exploit to become employees in south korea's company, ...<br>
-:)<br>
+:) good-bye sweden hacker 'r****'<br>
 
 
 
