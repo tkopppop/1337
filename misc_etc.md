@@ -8,18 +8,13 @@ It's me A.K.A x90c whom an elite hacker. I born in 1985 in south korea and at th
 - isec.pl leader (my isec author: Paul starzet, cliph(code naming's handle))<br>
 - hack.co.za global hacker<br>
 <br>
-----------------
-Korean version.
-
-hello i'm 1st generation hacker. i was working with teams as the up.<br>
+----------------<br>
+Korean version.<br>
+<br>
+hello i'm 1st generation hacker. i was playing(working) with teams.<br>
 :)<br>
 he stolen my code in the credit author naming... and change using of the exploit to become employees in south korea's company, ...<br>
 :) good-bye sweden hacker 'r****'<br>
-
-
-
-
-
 
 
 
