@@ -15,10 +15,8 @@ hello i'm 1st generation hacker. i was playing(working) with teams.<br>
 :)<br>
 he stolen my code in the credit author naming... and change using of the exploit to become employees in south korea's company, ...<br>
 :) good-bye sweden hacker 'r****'<br>
-
-
-
-
-
+<br>
+computer study is important for hackers.<br>
+hackers use computer language ways to enter after typing his/her codes.<br>
 
 
